@@ -1,3 +1,3 @@
 # Know who rules?
 
-NYC Sea Lions 2015 Rules!
+NYC Squirrels 2015 Rules!
